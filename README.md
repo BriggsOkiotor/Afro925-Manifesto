@@ -32,9 +32,9 @@ What drives Foma Briggs is the refusal to let a dream die due to a lack of a "Sp
 "The only way to go is to keep trying and hope for a song breakthrough day, or leave my sound on the streaming network as a legacy of my hard work, a testament that I gave my passion a big shot."
 The movement has transformed his career perspective. He no longer works just for a salary; he works to fund his "Venture Capital" project: his music.
 
-### IV. CREDIBILITY & COLOR ###
-**• Direct Quote:** "Hi, I'm Foma Briggs. I come to you as an artist and a movement. Of all that surrounds the table of Afrobeats, I render the best service and support. With Foma Briggs, Afrobeat can better breathe."
-**• The 925er™ Anecdote:** Imagine the transition straightening a tie in a boardroom while mentally rehearsing vocal warm-ups, or closing a complex data sheet at 4:00 PM to book a recording session.
+### IV. CREDIBILITY & ANECDOTE ###
+* Direct Quote: "Hi, I'm Foma Briggs. I come to you as an artist and a movement. Of all that surrounds the table of Afrobeats, I render the best service and support. With Foma Briggs, Afrobeat can better breathe.
+* The 925er™ Anecdote: Imagine the transition straightening a tie in a boardroom while mentally rehearsing vocal warm-ups, or closing a complex data sheet at 4:00 PM to book a recording session.
 
 ### V. VALUES, MISSION & VISION ###
 **• Mission Statement:** To bridge the gap between corporate resilience and creative legacy. We empower the working-class creative to see their 9-to-5 not as a cage, but as the venture capitalist for their ultimate purpose.
@@ -51,7 +51,7 @@ Nigeria’s entertainment industry is littered with "Fallen Stars"—once-wealth
 * The "5-Year Decay": For many stars who had massive hits between 2010 and 2015, their income was based on Appearance Fees and One-time Brand Deals, not long-term royalties. Once the "hits" stopped, the money stopped.
 * The "Peanuts" of Local Streaming: Even with millions of streams, if an artist doesn't have a massive international audience, the payout from local African streaming is often not enough to sustain a "celebrity" lifestyle.
 * Examples: We see veteran Nollywood actors and Afrobeat pioneers who once flew private, now seeking public donations for medical bills or basic housing
-• The Lack of Structure: Many stars of that era didn't have a 9-to-5 mindset. They didn't invest in assets,  professional or entrepreneurial skills. When their "15 minutes of fame" ended, they had no "Harvest" to fall back on.
+* The Lack of Structure: Many stars of that era didn't have a 9-to-5 mindset. They didn't invest in assets,  professional or entrepreneurial skills. When their "15 minutes of fame" ended, they had no "Harvest" to fall back on.
 
 ### VII. SUMMARY  (The Economics of the 925er™)
 We have to stop lying to ourselves about the "Industry." The data shows a harsh reality: nearly half of mid-tier stars face financial instability within five years of their last hit. To solve this, Afro925 operates on three cold, hard truths:
