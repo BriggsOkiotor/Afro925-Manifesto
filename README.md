@@ -1,7 +1,7 @@
 # THE AFRO925™ ORIGIN MANIFESTO
 ![Afro925 Image](https://github.com/user-attachments/assets/a36fd26a-28fc-4a95-95fe-e37f73465ffd)
 
-About Briggs Okiotor as a career person, Foma Briggs as a creative, and The Afro925 movement as a concept that bridges both industries. A safe space for the soul of the African creative.") 
+Briggs Okiotor as a career person, Foma Briggs as a creative, and The Afro925 movement as a concept that bridges both industries. A safe space for the soul of the African creative.") 
 
 At Afro925, we believe your vision, dream and passion deserves to manifest. Your 9-to-5 isn’t a cage; it is your (first) 
 **In-House Record Label.**
